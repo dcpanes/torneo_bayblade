@@ -1,5 +1,5 @@
 # 🌀 Mini-Torneo Beyblade – Ronda Única
-**El Villano vs El Coleccionista** · “último gol gana todo”
+**El Villano vs El Coleccionista** · “ganar o morir con jean claude van damme”
 
 ---
 
